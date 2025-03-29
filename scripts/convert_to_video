@@ -1,0 +1,12 @@
+#!/bin/bash
+echo $1
+
+pandoc -V geometry:papersize="{5in,8in}" $1 -o intermediate.pdf
+NUM_PAGES=$(pdfinfo intermediate.pdf | awk '/^Pages:/ {print $2}')
+PG_LN=$((${NUM_PAGES}*8))
+pandoc -V geometry:papersize="{5in,${PG_LN}in}" $1 -o intermediate.pdf
+pdftoppm -png -r 450 intermediate.pdf > intermediate.png
+convert intermediate.png -channel RGB -negate intermediate.png
+TOTAL_TIME=$((${NUM_PAGES}*85))
+ffmpeg -loop 1 -i intermediate.png -vf "scroll=vertical=0.000125,crop=iw:1600:0:0,format=yuv420p" -t ${TOTAL_TIME} final.mp4
+
