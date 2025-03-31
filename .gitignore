@@ -1,2 +1,6 @@
 Manifest.toml
 build/*
+*.bak
+*.pdf
+*.png
+*.mp4
