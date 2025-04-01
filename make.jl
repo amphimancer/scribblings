@@ -6,7 +6,12 @@ makedocs(
     pages = [
         "Hello" => "index.md"
         "2025" => Any[
-            "Hell's Administrator" => "content/2025/march/30.md"
+            "April" => Any[
+                "The Devil's Reincarnation" => "content/2025/april/1.md"
+             ]
+            "March" => Any[
+                "Hell's Administrator" => "content/2025/march/30.md"
+             ]
         ]
     ],
 )
