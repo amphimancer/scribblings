@@ -7,7 +7,8 @@ makedocs(
         "Hello" => "index.md"
         "2025" => Any[
             "April" => Any[
-                "All that Glitters" => "content/2025/april/2.md"
+                "Magic is Outside the Norm" => "content/2025/april/4.md"
+                "A Friend No More" => "content/2025/april/2.md"
                 "The Devil's Reincarnation" => "content/2025/april/1.md"
              ]
             "March" => Any[
