@@ -1,7 +1,7 @@
 using Documenter
 
 makedocs(
-    sitename="Scribblings",
+    sitename="Amphimancer",
     authors="Amphimancer",
     pages = [
         "Hello" => "index.md"
