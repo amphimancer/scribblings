@@ -6,6 +6,9 @@ makedocs(
     pages = [
         "Hello" => "index.md"
         "2025" => Any[
+            "May" => Any[
+                "A Reflection on the Wall" => "content/2025/may/6.md"
+            ]
             "April" => Any[
                 "Australia" => "content/2025/april/9.md"
                 "The Amphimancer: Not Alone" => "content/2025/april/8.md"
