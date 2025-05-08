@@ -7,6 +7,7 @@ makedocs(
         "Hello" => "index.md"
         "2025" => Any[
             "May" => Any[
+                "A Train in the Sky" => "content/2025/may/8.md"
                 "My *Nature* Paper" => "content/2025/may/7-2.md"
                 "There's Something in the Water" => "content/2025/may/7.md"
                 "My Reflection Is Not Mine" => "content/2025/may/6.md"
