@@ -275,3 +275,350 @@ From the heart of my friend that each pulse then refined.
     1. Anne is going to develop powers
     2. Belle will accidentally steal the powers
     3. They run
+
+Soon the mist then reformed into a cacoon
+
+The mist had grown so impressively bright.\
+She was the most intense of all the light.
+
+Seeing this, the creature stepped back, quite meek,\
+"That's her!" It growled, "The person I seek!\
+She has awoken! Brothers, let us fight!\
+I swear we'll be victorious this night!"
+
+The cries from the forest returned, quite loud,\
+Shadow after shadow became a crowd.\
+We were surrounded with nowhere to go,\
+I had nothing. We had reached a new low.\
+Just one of the creatures would be too much,\
+Yet here there were dozens, hundreds as such!\
+Frantic, confused, I lost all of my hope.\
+I curled myself on the ground to cope.\
+My friend was silent in her bright cacoon.\
+Everything was bleak. They would attack soon.
+
+My mind kept buzzing. Turning and turning.\
+There was a thought. A little concerning,\
+"These creatures are strong. Much stronger than us.\
+Yet they stand far away, making a fuss.\
+But what, exactly, are they waiting for?\
+We are cornered. They couldn't ask for more.\
+Is this person -- the girl I have just met,\
+Something quite special, causing them to fret?"
+
+While I mulled over that interesting thought,\
+The monsters began to chant, the whole lot.\
+"That magi has power for us to take!\
+Now is the time. We all know what's at stake!\
+She's a young fledgling away from her flock.\
+Her wings will soon sprout. We must race the clock!"
+
+Then there was a roar, deafening in size,\
+The shadows all grew and began to rise,\
+In moments they launched together as one,\
+Nefarious creatures all on the run.\
+They were ravage -- savage -- yet filled with glee.\
+They were stretching, coiling, limping at me.\
+That moment I knew there was no way out,\
+So I turned to my friend and gave a shout.\
+"Hey, listen. You really are a stranger,\
+Yet even so, I don't want you in danger.\
+If you can hear me while wrapped in that cloak,\
+Do something. Anything. Give me a poke."
+
+At this point her aura had grown so bright,\
+My eyes could not focus on all the light.\
+Yet I then felt something touch my left hand,\
+I seemed to reach her in some distant land.\
+Her fingers quickly entertwined with mine.\
+It was calming for me. *We might be fine*.\
+From our palms appeared a small orb of light.\
+It quickly grew into a shield of white.\
+Soon we were covered by spherical glass.\
+It extended far out into the grass.\
+It was opaque, blocking everything else.\
+*I guess we are stuck until the frost melts."
+
+Just moments before, I was filled with dread.\
+I really thought we were soon to be dead.\
+Yet there in the bubble, the world was still.\
+I just felt nothing. No goodness or ill.\
+It was me and my friend. There all alone.\
+We were together to fight the unknown.\
+Though she no longer shone, she was asleep.\
+Her clothes had vanished. I felt like a creep.\
+I then looked away with an awkward cough.\
+*There's something about this that feels so off.\
+I might be in a place I shouldn't be.\
+I need to think about how to get free.*
+
+There in that moment, I heard a strange thump.\
+*A beat from my heart that caused me to jump?\
+No. That's impossible. It makes no sense.\
+The noise was too loud. Way too intense.*\
+I then saw a smudge against the sphere's edge.\
+I took a deep breath and muttered a pledge,\
+"We've gotten pretty stuck here, you and me.\
+Yet we need each other, as you can see.\
+By some miracle, you saved us just now.\
+So I'll save us too in someway somehow.\
+Like I said, I'll do whatever it takes.\
+We need to tread lightly. Make no mistakes."
+
+Again a thump. Another. Another.\
+My lungs began to suffocate. Smother.\
+With every beat came another small smear,\
+Each one revealing the night so clear.\
+Every smudge was a hand. A paw. A claw.\
+All windows outside to a scene so raw.\
+The horde had closed in. I heard muffled cries.\
+They were swarming around like hungry flies.\
+
+With a thump came the stars. Another, land.\
+I saw an odd something next to the sand.\
+A body -- my body -- with clothes to match,\
+It lay on the ground with hardly a scratch.\
+It was still obscured by the sphere's white shell,\
+But how it was there, I could hardly tell.\
+*This must be a trick. A devious plot.\
+An illusion to have one of us caught.*\
+From where I was, I couldn't see it's face.\
+I shouldn't have looked, no matter the case.\
+And yet, intrigued, I took a step forward.\
+Still with my friend's hand, I tugged her toward.\
+She wouldn't budge and her grip was quite strong.\
+As I looked outside, I saw something wrong.\
+A head on my body, looking at me.\
+Yet it wasn't my face. It couldn't be.\
+It's eyes were deep blue. It's hair was jet black.\
+I couldn't help but be taken aback.\
+I shrieked and watched as it mimicked my fall.\
+The reflection was hers. Not mine at all.\
+I looked to my friend. She was not awake.\
+*Get it together. You know what's at stake!*
+
+Suddenly, there was a new thump and smear.\
+A claw that made another face appear.\
+One that I knew, but still hadn't seen.\
+It was of my creature, gruesome and mean.\
+It's eyes glowed red. It wore a toothy grin.\
+Black liquid oozed from the tip of it's chin.\
+And yet it paused while looking at us both,\
+It's brows furrowed before shouting an oath.\
+"Here we are many and you are alone.\
+It doesn't matter if you have a clone.\
+This shield will break, and then we will win.\
+We will rip you to shreds once we are in."
+
+It then roared and shouted, looking away,\
+It took a step back and began to say,\
+"Ignore the corpse. Go straight for the girl.\
+She's who we're after. Our present. Our pearl.\
+We are almost there. The egg will soon break!\
+
+Ignore that other one. Go for the girl.\
+
+
+
+
+This face I knew, but it still wasn't mine.\
+
+
+So rather than move, I craned my neck long.\
+I tried and I tried, I still couldn't see.\
+I wriggled, jiggled, but couldn't get free.
+
+I saw something wrong...
+
+
+
+
+A body distinct from the ugly lot,\
+
+He looks towards a still opaque part of the bubble and sees reflection of Anne.
+The hand then smears off the paint, revealing his face and then the face of his creature.
+
+
+"This bubble she's in is just a disguise!\
+
+
+
+
+
+
+I controlled my breathing and took a step.\
+
+I mustered my courage and took a step.\
+
+
+
+He walks towards the glass, but is held back.
+He feels the dirt against his feet.
+Another thump.
+
+
+My eyes were adjusting
+I saw it outside. Something disgusting.
+The horde had closed in and stood just outside.\
+
+from the glass, a disconcerting sound.\
+A thump from a creatures mighty pound.
+
+A rumble. A mumble. A muffled cry,
+"We were too late, but we can still win!"
+
+I'm invading somewhere I shouldn't be.
+
+The thump / heartbeat.
+The message from "god"
+Maybe her memories appear on the surface of the bubble?
+
+he gets used to the bubble and can see outside.
+There's a body there that he identifies as his.
+He sees his reflection and doesn't see himself.
+Arrow.
+
+Looking around, I saw my friend again.\
+o
+
+I saw a person reflected in the glass.
+Yet it wasn't my face, but hers.
+
+
+
+
+
+Though blinding at first, my eyes adjusted,\
+When looking out, I became disgusted.
+
+o
+
+But then I felt nothing. No fear. No hope.
+
+
+
+
+Just a moment before, 
+
+A bubble appeared as an orb of light shield of white,\
+
+Charge.
+Bubble (sbh -- muffled cries from the creatures outside).
+Star.
+Arrow (misunderstood as a threat).
+
+
+Yet in that moment, a bubble appeared,\
+
+
+
+My only companion, ....
+Frantic and confused, I turned toward my friend,\
+
+
+The creature had soon drawn a heinnous crowd.\
+
+My friend's light condensed to a single point,\
+My friend's light dimmed, she became a cacoon,\
+
+
+
+
+
+
+"No. We can make it. We just need to go!\
+
+
+
+
+
+"This is it. We've been found. We can't escape.\
+shape...
+
+
+She did not move. She was rooted in place,\
+I could not overcome the fear on her face.
+
+
+We could not run. She would give us away,\
+
+We huffed and we puffed and we ran away.\
+
+At this point, her aura had grown so bright,\
+So much that it nearly blinded my sight.\
+
+I leapt into action, grabbing my friend,
+
+
+
+
+
+
+
+
+
+
+
+A flight yet fight
+
+
+against better judgement, I followed instinct.\
+My body ran towards her on pure instinct.\
+
+Adrenaline surging, I perked my ears.\
+Listening closely for another's tears.\
+
+
+My body then moved without second thought.\
+Split second to chase after her.\
+
+
+1. Arrow pierces the heart while fleeing from the creature
+2. Hes still dead
+3. He finds Anne
+
+
+
+
+
+What were these things that were haunting me so?\
+I could not tell. I decided to go.\
+I didn't know where. I didn't know why.\
+I was soon out in the open night sky.\
+I took my knife. My gun. My trusty coat.\
+But honestly, there was nothing to note.\
+No more shadows, smudges. Nothing to see.\
+Nothing to figure out what these could be.
+
+Then next to the moon, a saw a bright light.
+It looked like a blue star caught in mid flight.
+I watched it for a bit. It grew and grew.
+It's light unveiled this horrid black goo.
+Ghastly creatures wandering all around.
+I guess I had luck. I had not been found.
+
+
+I then fell back in fear with a shout.
+
+
+The being then unfurled 
+
+
+Maybe a nightmare. I felt quite dismayed.
+My mind conjured 
+at whatever my 
+
+The pondering made my eyes grow heavy.
+
+A tenticle? No. Not in broad daylight.
+A
+Maybe a plant? A cloth? A  A kite?
+
+
+Hoping that again it could be caught.
+I was wrong. I didn't see it again.
+
+
+
+
+No way I'd return to being a man.

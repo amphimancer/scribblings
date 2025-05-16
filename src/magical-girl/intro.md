@@ -25,6 +25,7 @@ That if people knew how incredibly inadequate I truly am, I would quickly lose e
 My friends and family would abandon me.
 My doctorate would be revoked.
 I wouldn't be able to find a job because I would be publicly shamed as a "con artist" or something.
+
 So I keep up the act and pretend to be the person they think I am, even though I know (and now you know) it's all a lie.
 Hence the name "impostor syndrome".
 I feel like an impostor.
@@ -45,7 +46,7 @@ I'm just using poetry instead of prose.
 Now don't get me wrong.
 This story is not one that I have been planning since childhood.
 All of those are still strictly off-limits in the "I'm not good enough" box.
-Rather, I intentionally chose to write a compelling story I had not attempted before.
+Rather, I intentionally chose to write a compelling story I have no prior attachment to.
 Something that could easily allow me to explore my own impostor syndrome without growing out of scope.
 
 That said, this particular novel in verse is a *little* special, so let me throw some jargon at you.
@@ -56,10 +57,10 @@ Here are the first two lines to the book:
 **Once** I was **out** and a**bout** at mid**day** --\
 Abso**lu**tely **nor**mal in **ev**ery **way**,\
 
-I have purposefully bolded the stressed syllables -- the ones that are naturally a little stronger when speaking the line aloud.
+I have purposefully bolded the stressed syllables -- the ones that are naturally a little stronger when speaking aloud.
 Note that each stressed syllable is followed by two unstressed ones.
-This combination of stressed and unstressed syllables is known as a *dactyl* and is one of many metrical feet used to compose metered poetry.
-In this case, I have composed the poem entirely of dactyls, but because I wanted to also have doublet rhymes and such rhymes usually end up creating a stressed syllable at the end of the line, I have carried over the extra unstressed syllables to the next line.
+The initial combination of stressed and unstressed syllables is known as a *dactyl* and is one of many metrical feet used in metered poetry.
+In this case, I have composed the poem entirely of such feet, but because I wanted to also have doublet rhymes (which will usually create stressed syllables at the end of the line), I have carried over the extra unstressed syllables to the next line.
 That was a mouthful, but it ultimately means that every line should flow smoothly into one another so you can read them in rapid succession as if you are reading prose.
 The goal was to create a poem that would be easy to read by anyone of any level, but I don't know how well I hit that goal.
 
