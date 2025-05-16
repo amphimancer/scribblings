@@ -24,6 +24,10 @@ makedocs(
                 "Hell's Administrator" => "content/2025/march/30.md"
              ]
         ]
+        "AnnaBelle's Wish" => Any[
+            "Introduction" => "magical-girl/intro.md"
+            "The Things I Can't See" => "magical-girl/1.md"
+        ]
     ],
 )
 
